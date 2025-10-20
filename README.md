@@ -1,2 +1,0 @@
-# uwu-chan
-uwu-chan
